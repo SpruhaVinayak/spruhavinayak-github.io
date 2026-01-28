@@ -1,3 +1,0 @@
-# spruhavinayak-github.io
-
-hello
